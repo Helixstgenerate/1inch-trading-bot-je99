@@ -1,4 +1,4 @@
-# 
+# advanced 1inch trading bot Algorithm | sandwich-attack-protection + sniper-trades is the best 1inch trading bot, featuring sandwich-attack-protection and sniper-trades. Smart,
 
 
 
